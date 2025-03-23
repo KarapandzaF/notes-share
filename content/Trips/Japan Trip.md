@@ -6,7 +6,7 @@ tags:
 
 (stuff we should really book now is marked ok since formatting breaks on the site stuff with two == is marked)
 
-==**Things to do in Tokyo:**==
+## Things to do in Tokyo:
 
 **Burger Revolution:**
 ![[Pasted image 20250322192818.png]]
@@ -20,7 +20,7 @@ Probably the most boring out of everything that I have found so far but wagyu bu
 ![[Pasted image 20250322195031.png]]
 
 *Notes:*
-From what I have seen on online discussions is the best and in general pizza place to try in Tokyo only serving two different types of classic Tokyo style Pizzas, a napoletan style with more olive oil, salt and a twisted crust.
+From what I have seen on online discussions is the best and in general pizza place to try in Tokyo only serving two different types of classic Tokyo style Pizzas, a Neapolitan style with more olive oil, salt and a twisted crust.
 
 **Asakusa:**
 ![[Pasted image 20250322195312.png]]
@@ -40,29 +40,44 @@ Just train trips where you lay back and view the scenery looks expensive but as 
 *Notes:*
 Carbonara Udon. That's it
 
-==**Team Labs Borderless:==
+==Team Labs Borderless:==
 ![[Pasted image 20250322200209.png]]
 
 *Notes:*
 Similar to the other Team Labs attraction we've been to but different. It was in James May's Show
 
-==**Shibuya sky:
+==Shibuya sky:==
 ![[Pasted image 20250322200720.png]]
 
 *Notes:*
 The image mostly speaks for itself.
 
-**Shimokitazawa (coffe):
+**Shimokitazawa (coffe):**
 ![[Pasted image 20250322215801.png]]
 ![[Pasted image 20250322221624.png]]
 
 *Notes:*
 Its kind of a berlin-esq hipster district but they have really really good coffee taste testing there which we don't have to but the general area is still definitely worth checking out.
 
-**Stuff that's more me specific:**
+**Tokyo Imperial Palace:**
+![[Pasted image 20250323183636.png]]
+
+*Notes:*
+We missed it last time because it was closed.... This time we really have to check it out. It's in that sky scraper district which we found really impressive around Tokyo Station. We just really need to double check at what times they are open
 
 
+**Stuff that's more me specific (geeky) in Tokyo:**
 
+**Yushakobo:**
+![[Pasted image 20250323182856.png]]
 
+![[Pasted image 20250323182923.png]]
+*Notes:*
+Keyboard heaven just A LOT of keyboards
 
-==**Osaka:**==
+**Evangelion Tokyo 01:**
+![[Pasted image 20250323183338.png]]
+*Notes:*
+It's by far my favorite anime of all time I really really want to go and check out the flagship store in Tokyo. It's in ikebukeru an area that's definitely worth checking out aswell!
+
+## Osaka:
