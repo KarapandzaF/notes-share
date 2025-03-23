@@ -95,11 +95,16 @@ A bit iffy on this one definitely want tot check it out but is a low priority BU
 *Notes:*
 Saw some good stuff online about it really looks like a fun experience. From my understanding you go through the museum viewing the entire History of noodle cups while customizing and creating your own. At first it seemed like something kind of silly and stupid to me but then I remembered how much engineering went into the ticket checker so god know how much they worked on those noodle cups.
 
+**Kema Sakuranomiya Park:**
+![[Pasted image 20250323215513.png]]
+*Notes:*
+Our favorite Park by the river. Yeah we have to go back...
+
 **(Somewhat optional) Tsutenkatsu Tower:**
 ![[Pasted image 20250323214700.png]]
 ![[Pasted image 20250323214716.png]]
 *Notes:*
-Something we wanted to do last time but was clossed as per usual. It's still pretty optional to me since I think there were other places in the city where we got a much nicer view from but still something we could check out if we feel like it.
+Something we wanted to do last time but was closed as per usual. It's still pretty optional to me since I think there were other places in the city where we got a much nicer view from but still something we could check out if we feel like it.
 
 **Bikeshare Pass:**
 ![[Pasted image 20250323215148.png]]
