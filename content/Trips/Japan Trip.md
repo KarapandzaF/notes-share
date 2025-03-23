@@ -81,9 +81,31 @@ Keyboard heaven just A LOT of keyboards
 *Notes:*
 It's by far my favorite anime of all time I really really want to go and check out the flagship store in Tokyo. It's in ikebukeru an area that's definitely worth checking out as well!
 
+### Clothing brands I want to check out:
+**GU:**
+Uniqlo's more elegant sister brand. Heard really good stuff about them.
+**Shinzo:**
+They make some good jeans that's about it
+**United arrows:**
+A bit iffy on this one definitely want tot check it out but is a low priority BUT they have really nice shorts that I need for the summer.
 ## Osaka:
 
-### Stuff that's more me specific (geeky) in Tokyo:
+**Cup Noodles Museum:**
+![[Pasted image 20250323213606.png]]
+*Notes:*
+Saw some good stuff online about it really looks like a fun experience. From my understanding you go through the museum viewing the entire History of noodle cups while customizing and creating your own. At first it seemed like something kind of silly and stupid to me but then I remembered how much engineering went into the ticket checker so god know how much they worked on those noodle cups.
+
+**(Somewhat optional) Tsutenkatsu Tower:**
+![[Pasted image 20250323214700.png]]
+![[Pasted image 20250323214716.png]]
+*Notes:*
+Something we wanted to do last time but was clossed as per usual. It's still pretty optional to me since I think there were other places in the city where we got a much nicer view from but still something we could check out if we feel like it.
+
+**Bikeshare Pass:**
+![[Pasted image 20250323215148.png]]
+*Notes:*
+If out hotel doesn't have a bike we can just rent them with this pass.
+### Stuff that's more me specific (geeky) in Osaka:
 
 **Den Den Town:**
 ![[Pasted image 20250323190515.png]]
