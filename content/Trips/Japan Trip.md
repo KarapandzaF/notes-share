@@ -78,6 +78,6 @@ Keyboard heaven just A LOT of keyboards
 **Evangelion Tokyo 01:**
 ![[Pasted image 20250323183338.png]]
 *Notes:*
-It's by far my favorite anime of all time I really really want to go and check out the flagship store in Tokyo. It's in ikebukeru an area that's definitely worth checking out aswell!
+It's by far my favorite anime of all time I really really want to go and check out the flagship store in Tokyo. It's in ikebukeru an area that's definitely worth checking out as well!
 
 ## Osaka:
