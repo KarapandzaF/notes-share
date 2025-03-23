@@ -3,12 +3,12 @@ title: Japan Trip
 draft: false
 tags:
 ---
- 
-The rest of your content lives here. You can use **Markdown** here :)
-(stuff we should really book now is marked)
+
+(stuff we should really book now is marked ok since formatting breaks on the site stuff with two == is marked)
+
 ==**Things to do in Tokyo:**==
 
-**Burger Revolution:
+**Burger Revolution:**
 ![[Pasted image 20250322192818.png]]
 ![[Pasted image 20250322192846.png]]
 
@@ -16,25 +16,25 @@ The rest of your content lives here. You can use **Markdown** here :)
 Probably the most boring out of everything that I have found so far but wagyu burgers have to be great surely. Japanese burgers in general seems like something we should check out!
 
 
-**Pizza Studio Tamaki:
+**Pizza Studio Tamaki:**
 ![[Pasted image 20250322195031.png]]
 
 *Notes:*
 From what I have seen on online discussions is the best and in general pizza place to try in Tokyo only serving two different types of classic Tokyo style Pizzas, a napoletan style with more olive oil, salt and a twisted crust.
 
-**Asakusa:
+**Asakusa:**
 ![[Pasted image 20250322195312.png]]
 
 *Notes:*
 A temple in the middle of Tokyo with a pretty large Food market one of the go to places to visit in Tokyo so I am still kind of surprised that we hadn't visited it on any of our previous trips.
 
-**Spacia x/ Saphir odorikio (sightseeing trains)
+**Spacia x/ Saphir odorikio (sightseeing trains)**
 ![[Pasted image 20250322195641.png]]
 
 *Notes:*
 Just train trips where you lay back and view the scenery looks expensive but as everything in Japan it *isn't*. There's the Spacia X and Saphir Odoriko both seem great but I am personally leaning towards the Saphir
 
-**Menchirashi:
+**Menchirashi:**
 ![[Pasted image 20250322195948.png]]
 
 *Notes:*
@@ -51,5 +51,18 @@ Similar to the other Team Labs attraction we've been to but different. It was in
 
 *Notes:*
 The image mostly speaks for itself.
-shimokitazawa coffe
 
+**Shimokitazawa (coffe):
+![[Pasted image 20250322215801.png]]
+![[Pasted image 20250322221624.png]]
+
+*Notes:*
+Its kind of a berlin-esq hipster district but they have really really good coffee taste testing there which we don't have to but the general area is still definitely worth checking out.
+
+**Stuff that's more me specific:**
+
+
+
+
+
+==**Osaka:**==

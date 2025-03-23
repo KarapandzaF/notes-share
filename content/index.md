@@ -2,6 +2,6 @@
 title: Home
 ---
 
-# Welcome to My Quartz Site
+# Welcome to My Notes
 
-This is the homepage of my Quartz site. You can add more content here!
+Notes here are usually related to my personal life and are just up here for easy sharing
