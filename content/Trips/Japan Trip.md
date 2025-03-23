@@ -9,6 +9,7 @@ tags:
 ## Things to do in Tokyo:
 
 **Burger Revolution:**
+
 ![[Pasted image 20250322192818.png]]
 ![[Pasted image 20250322192846.png]]
 
@@ -63,10 +64,10 @@ Its kind of a berlin-esq hipster district but they have really really good coffe
 ![[Pasted image 20250323183636.png]]
 
 *Notes:*
-We missed it last time because it was closed.... This time we really have to check it out. It's in that sky scraper district which we found really impressive around Tokyo Station. We just really need to double check at what times they are open
+We missed it last time because it was closed.... This time we really have to check it out. It's in that sky scraper district which we found really impressive around Tokyo Station. We just really need to double check at what times they are open so we don't go again only to see that it's closed.
 
 
-**Stuff that's more me specific (geeky) in Tokyo:**
+### Stuff that's more me specific (geeky) in Tokyo:
 
 **Yushakobo:**
 ![[Pasted image 20250323182856.png]]
@@ -81,3 +82,13 @@ Keyboard heaven just A LOT of keyboards
 It's by far my favorite anime of all time I really really want to go and check out the flagship store in Tokyo. It's in ikebukeru an area that's definitely worth checking out as well!
 
 ## Osaka:
+
+### Stuff that's more me specific (geeky) in Tokyo:
+
+**Den Den Town:**
+![[Pasted image 20250323190515.png]]
+(https://www.google.com/maps/search/Game+Tanteidan+Retro+TV+Game+Revival%2C+Osaka%2C+Japan) <- A store someone recommended on reddit but I am too lazy to write out
+![[Pasted image 20250323190850.png]]
+
+*Notes:*
+Yeah it's just the nerdy part of Osaka. Ok but since Osaka is a lot less crowded than Tokyo you will find a lot better deals here when it comes to most everything, especially retro games. It's insanely cheap here and I swear to god if I don't find those Gundam scissors here this time
