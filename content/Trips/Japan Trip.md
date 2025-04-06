@@ -4,8 +4,13 @@ draft: false
 tags:
 ---
 
-(stuff we should really book now is marked ok since formatting breaks on the site stuff with two == is marked)
+**Our hotel in Tokyo:**
+## Hotel Grove Shinjuku:
 
+![[Pasted image 20250406132840.png]]
+**Our hotel in Osaka:**
+## Cross Hotel Osaka:
+![[Pasted image 20250406133059.png]]
 ## Things to do in Tokyo:
 
 **Burger Revolution:**
@@ -41,13 +46,13 @@ Just train trips where you lay back and view the scenery looks expensive but as 
 *Notes:*
 Carbonara Udon. That's it
 
-==Team Labs Borderless:==
+~~==Team Labs Borderless:==~~
 ![[Pasted image 20250322200209.png]]
 
 *Notes:*
 Similar to the other Team Labs attraction we've been to but different. It was in James May's Show
 
-==Shibuya sky:==
+~~==Shibuya sky:==~~
 ![[Pasted image 20250322200720.png]]
 
 *Notes:*
@@ -66,7 +71,10 @@ Its kind of a berlin-esq hipster district but they have really really good coffe
 *Notes:*
 We missed it last time because it was closed.... This time we really have to check it out. It's in that sky scraper district which we found really impressive around Tokyo Station. We just really need to double check at what times they are open so we don't go again only to see that it's closed.
 
-
+**Gate One:**
+![[Pasted image 20250406133440.png]]
+*Notes:*
+Small Jazz bar in Tokyo really looks fun and worth checking out!
 ### Stuff that's more me specific (geeky) in Tokyo:
 
 **Yushakobo:**
@@ -119,3 +127,21 @@ If out hotel doesn't have a bike we can just rent them with this pass.
 
 *Notes:*
 Yeah it's just the nerdy part of Osaka. Ok but since Osaka is a lot less crowded than Tokyo you will find a lot better deals here when it comes to most everything, especially retro games. It's insanely cheap here and I swear to god if I don't find those Gundam scissors here this time
+
+## Itineraries Tokyo:
+**Day 1:**
+- Arrive at the hotel
+- Afterwards go straight to fuunji for lunch (genuinely couldn't find anything else that isn't just as far)
+- spend time in shinjuku if wanted
+- Shimokitazawa
+- nakemugeru
+- shibuya (gonna be grabbing some clothing here) (tacos 3 hermanos is nearby we should eat that)
+- menchirashi for dinner (carbonara udon)
+**Day 2:**
+- wake up go to imperial palace 
+- seisuke knife shop
+- eat lunch at pizza studio tamaki
+- asakusa
+- tokyo national museum
+- akihabara
+- futago dinner
